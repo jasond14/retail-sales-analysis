@@ -8,4 +8,4 @@
 
 
 
-Read full overview on [Google Doc] (https://docs.google.com/document/d/1ZGlxZMcwPzTwfohB9b58m3twDr559b9-1jzlMNVLgYE/edit?usp=sharing)
+Read full overview on [GOOGLE DOC LINK](https://docs.google.com/document/d/1ZGlxZMcwPzTwfohB9b58m3twDr559b9-1jzlMNVLgYE/edit?usp=sharing)
